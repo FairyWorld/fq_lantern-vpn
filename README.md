@@ -8,6 +8,10 @@
 youlianboshi
 ```
 
+[快柠檬加速器无限重置白嫖，白嫖失败换IP在尝试](https://rushlmo.org/s/acn01/ptijdns)
+
+<img width="1332" height="1381" alt="image" src="https://github.com/user-attachments/assets/03128485-a3be-4fa4-82a1-0c1811abbf22" />
+
 [2026/4/12无限白嫖VPN，每次重置ID获得一小时50G流量](https://t.me/c/3305349155/4678)
 
 <img width="500" height="750" alt="11" src="https://github.com/user-attachments/assets/8828108d-3c6e-483c-b70b-c953fe8c3386" />
