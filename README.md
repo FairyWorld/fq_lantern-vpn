@@ -8,7 +8,7 @@
 youlianboshi
 ```
 
-[2026/5/1快柠檬加速器无限重置白嫖，目前不用修改机器码，仅作为备用，运行重置工具即可，换新IP赠送10G流量，不换IP赠送2G流量，换新IP方法：用宽带则拔插网线重启路由器，用手机则开启飞行模式](https://rushlmo.org/s/acn01/ptijdns),[破解重置工具下载](https://ylbs.lanzoul.com/iEJqy3ogly6f)
+[2026/5/1快柠檬加速器无限重置白嫖，目前不用修改机器码，仅作为备用，运行重置工具即可，换新IP赠送10G流量，不换IP赠送2G流量，换新IP方法：用宽带则拔插网线重启路由器，用手机则开启飞行模式](https://rushlmo.org/s/acn01/ptijdns),[破解重置工具下载](https://www.lanzoup.com/iEJqy3ogly6f)
 
 <img width="1332" height="1381" alt="image" src="https://github.com/user-attachments/assets/03128485-a3be-4fa4-82a1-0c1811abbf22" />
 
